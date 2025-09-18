@@ -1,1 +1,1 @@
-Quand tu partiras
+Quand je partirai
